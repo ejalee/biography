@@ -33,4 +33,5 @@ Thank you for understanding and respecting the licence conditions.
 
  ## GET IN TOUCH 
 
-https://twitter.com/azemighty76 | https://plus.google.com/+adigunazeez | https://www.facebook.com/azemighty | dev@estamidetech.com
+https://twitter.com/azemighty76 | https://plus.google.com/+adigunazeez | https://www.facebook.com/azemighty | 
+Skype: Azemighty
